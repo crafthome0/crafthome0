@@ -5,5 +5,5 @@
 -------
 Discord: crafthome#7777
 
-Support: https://ko-fi.com/crafthome
+Support: https://c11.kr/paypal_crafthome
 
